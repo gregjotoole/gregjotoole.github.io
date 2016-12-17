@@ -17,9 +17,7 @@ Ex. HQ:How much money do I want to donate to save oily birds? => EQ: How mad am 
 
 Nunca dar consejo a nadie a menos que sepas exactamente de que estas hablando. 
 
-The more you try to justify yourself, the more power you give others to judge you. 
-
-People will do anything if they think they can get away with it.
+The more you try to justify yourself, the more power you give others to judge you. .
 
 What do i think i know and why do i think i know it?
 
